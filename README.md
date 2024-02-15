@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+* Yasmin Ferreira da Rosa 
+* Colégio Estadual Dr.Arnaldo Busatto
+* 2 C
